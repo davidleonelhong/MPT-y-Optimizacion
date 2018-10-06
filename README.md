@@ -1,1 +1,0 @@
-# MPT-y-Optimizacion
